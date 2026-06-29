@@ -1,4 +1,4 @@
-
+automatic sol's rng Script offers the most advanced sol's rng Script, with auto-heal and god mode. Perfect for dominating any match.
 
 
 
